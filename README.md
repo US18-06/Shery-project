@@ -1,3 +1,3 @@
 # Heart for you
 
-https://us18-06.github.io/cherry-project/
+https://us18-06.github.io/Shery-project/
